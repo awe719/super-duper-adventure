@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Dance
 - 🌱 I’m currently learning ...code
 - 💞️ I’m looking to collaborate on ...Anything i can learn
-- 📫 How to reach me ...honesty7807@gmail.com
+- 📫 How to reach me ... awebea49@gmail.com
 - 😄 Pronouns: ...She/her
 - ⚡ Fun fact: ...I'm a nurse. Comedian
 
